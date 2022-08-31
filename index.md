@@ -1,3 +1,3 @@
 # Vælkomin
 
-Trýst (HER)[folder/cv.pdf]
+Trýst [HER](folder/cv.pdf)
