@@ -1,3 +1,1 @@
-# Vælkomin
-
-Trýst [HER](folder/cv.pdf)
+# [SANGHEFTI TIL FØÐINGARDAG](folder/cv.pdf)
