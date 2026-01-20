@@ -1,1 +1,1 @@
-# 🎶🥳🍻 [SANGHEFTI TIL FØÐINGARDAG](folder/cv.pdf) 🍻🥳🎶
+# 🎶🥳🍻 [SANGHEFTI TIL FØÐINGARDAG](folder/30-sanghefti.pdf) 🍻🥳🎶
